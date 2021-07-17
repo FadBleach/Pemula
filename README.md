@@ -68,6 +68,3 @@ Note : Jika ingin instal pke vps tinggal tambah sudo di depan command
 • Add My ID LINE :
 
 〘 https://line.me/ti/p/~fadtobing 〙
-
-〘 https://liff.line.me/1645278921 〙
-
