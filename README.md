@@ -67,7 +67,7 @@ Note : Jika ingin instal pke vps tinggal tambah sudo di depan command
 # Creator By FadlanBleach
 • Add My ID LINE :
 
-〘 https://line.me/ti/p/~ fadtobing 〙
+〘 https://line.me/ti/p/~fadtobing 〙
 
-〘 https://line.me/ti/p/~ BLEACH BOT TEAM 〙
+〘 https://line.me/ti/p/~BLEACH BOT TEAM 〙
 
