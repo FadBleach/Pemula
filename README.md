@@ -69,5 +69,5 @@ Note : Jika ingin instal pke vps tinggal tambah sudo di depan command
 
 〘 https://line.me/ti/p/~fadtobing 〙
 
-〘 https://line.me/ti/p/~BLEACH BOT TEAM 〙
+〘 https://liff.line.me/1645278921 〙
 
